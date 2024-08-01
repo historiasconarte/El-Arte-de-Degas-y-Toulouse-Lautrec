@@ -1,1 +1,3 @@
 # El-Arte-de-Degas-y-Toulouse-Lautrec
+Edgar Degas y Henri Toulouse Lautrec, dos maestros impresionistas, encontraron inspiración en las mujeres trabajadoras de su tiempo. Degas, con su técnica luminosa, capturó a las lavanderas y planchadoras en momentos de esfuerzo y dedicación, mientras que Toulouse Lautrec retrató la belleza y misterio de las lavanderas de Montmartre. Sus obras, aunque diferentes en estilo, comparten una profunda admiración por la vida cotidiana y la fortaleza de estas mujeres. Un tributo artístico a la labor y humanidad femenina.
+https://historiasconarte.com/2024/08/01/las-lavanderas-de-degas-y-toulouse-lautrec/
